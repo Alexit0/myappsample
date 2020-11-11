@@ -1,2 +1,2 @@
 #My App
-Me learning stuff
+Why not like in the video
